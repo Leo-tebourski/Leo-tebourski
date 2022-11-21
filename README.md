@@ -3,9 +3,13 @@
 
 - 🔭 I’m currently working on **on qualifying training**
 
+- 📝 My cover letter [https://www.canva.com/design/DAFSmKw9Rx8/0BsQLYUa0GuX-bh7JNl7tg/view?utm_content=DAFSmKw9Rx8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFSmKw9Rx8/0BsQLYUa0GuX-bh7JNl7tg/view?utm_content=DAFSmKw9Rx8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
 - 📫 How to reach me **leotebourski@gmail.com**
 
-- ⚡ Fun fact **I am small but effective**
+- 📄 Know about my experiences [https://www.canva.com/design/DAFIjmiGuGg/_nrfc1UaktqmCl9rqEh-gQ/view?utm_content=DAFIjmiGuGg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFIjmiGuGg/_nrfc1UaktqmCl9rqEh-gQ/view?utm_content=DAFIjmiGuGg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+- ⚡ Fun fact **I like chickens**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
